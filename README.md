@@ -1,5 +1,4 @@
-### Hi there 👋
+### Highly motivated and inovative developer and entrepreneur :floppy_disk: :man_in_tuxedo:
+## Always ready to learn and explore
 
-<!--
-**BatMarto/BatMarto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+Currently working under an organization
